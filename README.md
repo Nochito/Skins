@@ -4,7 +4,7 @@
 ![](https://i.imgur.com/6wR7W4y.png)
 
 # [Nochito Was Here [1.1]『NM』by me](http://www.mediafire.com/file/nzjvfeq9rn57mkj/-_Nochito_Was_Here_%25E3%2580%258ENM%25E3%2580%258F_%2523_%255B1.1%255D.osk/file)
-![](https://i.imgur.com/0ckZEDS.png)
+![](https://i.imgur.com/ShcKZHZ.png)
 
 # [Nochito Was Here [1.1]『DT』by me](http://www.mediafire.com/file/qof6e2ko8pyeavw/-_Nochito_Was_Here__%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.1%255D.osk/file)
 ![](https://i.imgur.com/eXjQA4p.png)
@@ -19,3 +19,4 @@ Original concept by [Krai]
 # [Nochito Futaba [1.0]『Selyu』by me](http://www.mediafire.com/file/squo4i11kiijtu6/-_%2523_Nochito_Futaba_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
 ![](https://i.imgur.com/ZqasiQn.png)
 Original concept by [Krai]
+
