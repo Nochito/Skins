@@ -1,5 +1,4 @@
-# Skins
-Nochito's osu! skins
+# Nochito's osu! skins
 
 # [Nochito Was Here [1.1]『Ωmega』by me](http://www.mediafire.com/file/rbv8whzlcnuj2cg/-++++Nochito+Was+Here+『Ωmega』+#+[1.1].osk/file)
 ![](https://i.imgur.com/6wR7W4y.png)
