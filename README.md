@@ -1,4 +1,4 @@
-8 7 # Nochito's osu! skins
+# [Mis Skins de osu]
 
 # [Nochito Was Here [1.1]『Ωmega』by me](http://www.mediafire.com/file/rbv8whzlcnuj2cg/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9mega%25E3%2580%258F_%2523_%255B1.1%255D.osk/file)
 ![](https://i.imgur.com/6wR7W4y.png)
@@ -29,5 +29,5 @@ Original concept by [Krai]
 # [A hat in Copycat [1.0]『DT』by me](http://www.mediafire.com/file/75m7bpymdec9mh2/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
 ![](https://i.imgur.com/RGYE04X.png)
 
-
+A medida que vaya haciendo skins voy a subirlas aqui OwO
 
