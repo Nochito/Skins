@@ -21,7 +21,7 @@ Original concept by [Krai]
 Original concept by [Krai]
 
 # [Nochito Futaba [1.0]『Azr8』by me](http://www.mediafire.com/file/xhhq4phvz38wvai/-_%2523_Nochito_Futaba_%25E3%2580%258EAzr8%25E3%2580%258F_%2523_-.osk/file)
-![](https://i.imgur.com/zMJuYLq.png)
+![](https://i.imgur.com/qenRMvI.png)
 
 # [A hat in Copycat [1.0]『HG』by me](http://www.mediafire.com/file/l42j9wwlas54wns/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EHK%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
 ![](https://i.imgur.com/qBB3kJr.png)
