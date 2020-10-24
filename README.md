@@ -17,7 +17,7 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 ![](https://i.imgur.com/L1jNieS.png)
 Original concept by [Krai]
 
-# [Nochito Futaba [1.0]『Selyu』by me](http://www.mediafire.com/file/bm98btdq7zxrds2/-_%2523_Nochito_Futaba_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
+# [Nochito Futaba [1.0]『Selyu』by me](http://www.mediafire.com/file/l7iqigy9mq2db8t/-_%2523_Nochito_Futaba_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)
 ![](https://i.imgur.com/ZqasiQn.png)
 Original concept by [Krai]
 
