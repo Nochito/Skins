@@ -33,8 +33,8 @@ Original concept by [Krai]
 # [Nochii - My Angel Tefy - v1.0 『CH』](http://www.mediafire.com/file/censtevdrec2p3x/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258ECH%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/pWRETr3.jpg)
 
-# [Nochii - My Angel Tefy - v1.0 『AZ』](http://www.mediafire.com/file/491ovimx2yuurpu/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258EAZ%25E3%2580%258F_%2523%2523_-.osk/file)
-![](https://i.imgur.com/cN0zEOp.jpg)
+# [Nochii - My Angel Tefy - v1.0 『AZ』](http://www.mediafire.com/file/x0piaprqow871na/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258EAZ%25E3%2580%258F_%2523%2523_-.osk/file)
+![](https://i.imgur.com/NrRS90a.jpg)
 
 A medida que vaya haciendo skins voy a subirlas aqui OwO
 
