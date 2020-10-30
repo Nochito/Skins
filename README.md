@@ -30,5 +30,11 @@ Original concept by [Krai]
 # [A hat in Copycat [1.0]『DT』by me](http://www.mediafire.com/file/75m7bpymdec9mh2/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
 ![](https://i.imgur.com/RGYE04X.png)
 
+# [Nochii - My Angel Tefy - v1.0 『CH』](http://www.mediafire.com/file/censtevdrec2p3x/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258ECH%25E3%2580%258F_%2523%2523_-.osk/file)
+![](https://i.imgur.com/pWRETr3.jpg)
+
+# [Nochii - My Angel Tefy - v1.0 『AZ』](http://www.mediafire.com/file/491ovimx2yuurpu/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258EAZ%25E3%2580%258F_%2523%2523_-.osk/file)
+![](https://i.imgur.com/cN0zEOp.jpg)
+
 A medida que vaya haciendo skins voy a subirlas aqui OwO
 
