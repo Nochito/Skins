@@ -46,13 +46,13 @@ Original concept by [Krai]
 # [Nochii - My Angel Tefy - v1.0 『AZ』](http://www.mediafire.com/file/x0piaprqow871na/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258EAZ%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/NrRS90a.jpg)
 
-# [Nochii - Blemi - v1.0 『NT』](http://www.mediafire.com/file/qi7kqzmc1wo55rm/-_Nochii_%2523_Blemi__%25E3%2580%258ENT%25E3%2580%258F_v1.0_-.osk/file)
+# [Nochii - Blemi - v1.0 『NT』](http://www.mediafire.com/file/5inr7fr5wxzcnv6/-_Nochii_%2523_Blemi__%25E3%2580%258ENT%25E3%2580%258F_v1.0_-.osk/file)
 ![](https://i.imgur.com/sZQPwk9.png)
 
-# [Nochii - Blemi - v1.0 『BB』](http://www.mediafire.com/file/srqb52l99kl65ob/-_Nochii_%2523_Blemi__%25E3%2580%258EBB%25E3%2580%258F_v1.0_-.osk/file)
+# [Nochii - Blemi - v1.0 『BB』](http://www.mediafire.com/file/qk2crpvd9wpcjn2/-_Nochii_%2523_Blemi__%25E3%2580%258EBB%25E3%2580%258F_v1.0_-.osk/file)
 ![](https://i.imgur.com/fQ3xsBW.png)
 
-# [Nochii - Blemi - v1.0 『DT』](http://www.mediafire.com/file/pootc2iq8ny8p2k/-_Nochii_%2523_Blemi__%25E3%2580%258EDT%25E3%2580%258F_v1.0_-.osk/file)
+# [Nochii - Blemi - v1.0 『DT』](http://www.mediafire.com/file/wip8tbv9xzidx5x/-_Nochii_%2523_Blemi__%25E3%2580%258EDT%25E3%2580%258F_v1.0_-.osk/file)
 ![](https://i.imgur.com/tddFPrm.png)
 
 
