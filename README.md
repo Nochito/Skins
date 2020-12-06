@@ -56,7 +56,7 @@ Original concept by [Krai]
 ![](https://i.imgur.com/tddFPrm.png)
 
 # [Nochito Futaba V2『NT』](http://www.mediafire.com/file/8mjqe457s6lmlsl/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
-![](https://imgur.com/KschkzE)
+![](https://i.imgur.com/KschkzE.png)
 
 A medida que vaya haciendo skins voy a subirlas aqui OwO
 
