@@ -55,6 +55,8 @@ Original concept by [Krai]
 # [Nochii - Blemi - v1.0 『DT』](http://www.mediafire.com/file/wip8tbv9xzidx5x/-_Nochii_%2523_Blemi__%25E3%2580%258EDT%25E3%2580%258F_v1.0_-.osk/file)
 ![](https://i.imgur.com/tddFPrm.png)
 
+# [Nochito Futaba V2『NT』](http://www.mediafire.com/file/8mjqe457s6lmlsl/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
+![](https://imgur.com/KschkzE)
 
 A medida que vaya haciendo skins voy a subirlas aqui OwO
 
