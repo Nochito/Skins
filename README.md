@@ -58,5 +58,11 @@ Original concept by [Krai]
 # [Nochito Futaba V2『NT』](http://www.mediafire.com/file/f4qxjuiufxuveec/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
 ![](https://i.imgur.com/KschkzE.png)
 
+# [Nochito Futaba V2『BB』](http://www.mediafire.com/file/cksz9m2g65dly3m/-_Nochito_Futaba_v2_%25E3%2580%258EBB%25E3%2580%258F_-.osk/file)
+![](https://i.imgur.com/7EUsxZA.png)
+
+# [Nochito Futaba V2『Selyu』](http://www.mediafire.com/file/t5gzhlsgufy0eaq/-_Nochito_Futaba_v2_%25E3%2580%258ESelyu%25E3%2580%258F_-.osk/file)
+![](https://i.imgur.com/J832WdL.png)
+
 A medida que vaya haciendo skins voy a subirlas aqui OwO
 
