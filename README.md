@@ -17,17 +17,17 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 ![](https://i.imgur.com/MrMiMgY.jpg)
 
 
-# [Nochito Futaba [1.1]『FR』by me](https://www.mediafire.com/file/joemd8y4ai7y886/-_Nochito_Futaba_-_v1.1_%25E3%2580%258EFR%25E3%2580%258F_%2523%2523_-.osk/file)
+# [MOD-Nochito Futaba [1.1]『FR』Mod by me](https://www.mediafire.com/file/joemd8y4ai7y886/-_Nochito_Futaba_-_v1.1_%25E3%2580%258EFR%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/G456gy7.jpg)
 Original concept by [Krai]
 
 
-# [Nochito Futaba [1.1]『Selyu』by me](https://www.mediafire.com/file/mj568igeyr0hfhf/-_Nochito_Futaba_-_v1.1_%25E3%2580%258ESelyu%25E3%2580%258F_%2523%2523_-.osk/file)
+# [MOD-Nochito Futaba [1.1]『Selyu』Mod by me](https://www.mediafire.com/file/mj568igeyr0hfhf/-_Nochito_Futaba_-_v1.1_%25E3%2580%258ESelyu%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/KFgNCL4.jpg)
 Original concept by [Krai]
 
 
-# [Nochito Futaba [1.1]『Azr8』by me](https://www.mediafire.com/file/w1kasrvnnogmh2q/-_Nochito_Futaba_-_v1.1_%25E3%2580%258EAzr8%25E3%2580%258F_%2523%2523_-.osk/file)
+# [MOD-Nochito Futaba [1.1]『Azr8』Mod by me](https://www.mediafire.com/file/w1kasrvnnogmh2q/-_Nochito_Futaba_-_v1.1_%25E3%2580%258EAzr8%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/qk9Kz8B.jpg)
 
 
