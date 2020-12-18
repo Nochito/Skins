@@ -51,9 +51,9 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 ![](https://i.imgur.com/fQ3xsBW.png)
 
 # [Nochii - Blemi - v1.0 『DT』](http://www.mediafire.com/file/wip8tbv9xzidx5x/-_Nochii_%2523_Blemi__%25E3%2580%258EDT%25E3%2580%258F_v1.0_-.osk/file)
-![](https://i.imgur.com/tddFPrm.png)
+![http://www.mediafire.com/file/wip8tbv9xzidx5x/-_Nochii_%2523_Blemi__%25E3%2580%258EDT%25E3%2580%258F_v1.0_-.osk/file](https://i.imgur.com/tddFPrm.png)
 
-# MOD-Nochito Futaba
+# MOD Nochito Futaba
 
 # [MOD-Nochito Futaba [1.1]『FR』Mod by me](https://www.mediafire.com/file/joemd8y4ai7y886/-_Nochito_Futaba_-_v1.1_%25E3%2580%258EFR%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/G456gy7.jpg)
