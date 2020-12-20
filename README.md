@@ -1,7 +1,7 @@
 # Nochito's skins
 Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 
-# ---------------------------------------------------------------------------
+# -------------------------------------------------------------------------------
 
 # [Nochito Was Here [1.2]『Ω』by me](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/qePZqvk.jpg)
