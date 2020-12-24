@@ -62,6 +62,9 @@ Original concept by [Krai]
 # [MOD-Nochito Futaba [1.1]『Azr8』Mod by me](https://www.mediafire.com/file/w1kasrvnnogmh2q/-_Nochito_Futaba_-_v1.1_%25E3%2580%258EAzr8%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/qk9Kz8B.jpg)
 
+# [MOD-Switch Fade NochiiMod [1.2]『DT』Mod by me](https://www.mediafire.com/file/t07xqwoitfwdf35/-_%2523_Switch_Fade_%257B1.2%257D_%25E3%2580%258EDT%25E3%2580%258F_%2523_%2528Nochii-Mod%2529_-.osk/file)
+![](https://i.imgur.com/64QpWAd.png)(https://i.imgur.com/ukcioX0.png)
+
 # Other Skins (skins not made by me)
 
 A medida que vaya haciendo skins voy a subirlas aqui OwO
