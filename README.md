@@ -2,7 +2,7 @@
 Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 
 # Skins made by me
-![](https://i.imgur.com/MDAbbQO.png)
+
 # [Nochito Was Here [1.2]』by me]
 ![](https://i.imgur.com/MDAbbQO.png)
 # [『Ω』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
