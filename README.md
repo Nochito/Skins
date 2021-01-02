@@ -34,7 +34,8 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 # [『AZ』](http://www.mediafire.com/file/x0piaprqow871na/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258EAZ%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/NrRS90a.jpg)
 
-
+# ======= A hat in Copycat - v1.0 =======
+![](https://i.imgur.com/OBrnqQh.png)
 # [A hat in Copycat [1.0]『HG』by me](http://www.mediafire.com/file/l42j9wwlas54wns/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EHK%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
 ![](https://i.imgur.com/qBB3kJr.png)
 
