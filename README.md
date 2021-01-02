@@ -36,16 +36,14 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 
 # ========= A hat in Copycat - v1.0 =========
 ![](https://i.imgur.com/OBrnqQh.png)
-# [A hat in Copycat [1.0]『HG』by me](http://www.mediafire.com/file/l42j9wwlas54wns/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EHK%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
+# [『HG』by me](http://www.mediafire.com/file/l42j9wwlas54wns/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EHK%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
 ![](https://i.imgur.com/qBB3kJr.png)
 
-# [A hat in Copycat [1.0]『DT』by me](http://www.mediafire.com/file/75m7bpymdec9mh2/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
+# [『DT』by me](http://www.mediafire.com/file/75m7bpymdec9mh2/-_Nochii_%2523_A_hat_in_Copycat_%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.0%255D.osk/file)
 ![](https://i.imgur.com/RGYE04X.png)
 
-
-
-
-
+# =============== Blemi - v1.0 ==============
+![](https://i.imgur.com/3oHpPOr.png)
 # [Nochii - Blemi - v1.0 『NT』](http://www.mediafire.com/file/5inr7fr5wxzcnv6/-_Nochii_%2523_Blemi__%25E3%2580%258ENT%25E3%2580%258F_v1.0_-.osk/file)
 ![](https://i.imgur.com/sZQPwk9.png)
 
