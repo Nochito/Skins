@@ -2,8 +2,6 @@
 Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 
 # ========= Nochito Was Here [1.2] =========
-
-# [Nochito Was Here [1.2]』by me]
 ![](https://i.imgur.com/MDAbbQO.png)
 # [『Ω』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/qePZqvk.jpg)
@@ -17,14 +15,15 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 # [『VV』](http://www.mediafire.com/file/mj9forj93q3q32a/-_Nochito_Was_Here_%25E3%2580%258EVV%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/MrMiMgY.jpg)
 
-
-# [Nochito Futaba V2『NT』](http://www.mediafire.com/file/f4qxjuiufxuveec/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
+# ========= Nochito Futaba V2 =========
+![](https://i.imgur.com/G6j916g.png)
+# [『NT』](http://www.mediafire.com/file/f4qxjuiufxuveec/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
 ![](https://i.imgur.com/HsVo09A.png)
 
-# [Nochito Futaba V2『BB』](http://www.mediafire.com/file/cksz9m2g65dly3m/-_Nochito_Futaba_v2_%25E3%2580%258EBB%25E3%2580%258F_-.osk/file)
+# [『BB』](http://www.mediafire.com/file/cksz9m2g65dly3m/-_Nochito_Futaba_v2_%25E3%2580%258EBB%25E3%2580%258F_-.osk/file)
 ![](https://i.imgur.com/7EUsxZA.png)
 
-# [Nochito Futaba V2『Selyu』](http://www.mediafire.com/file/t5gzhlsgufy0eaq/-_Nochito_Futaba_v2_%25E3%2580%258ESelyu%25E3%2580%258F_-.osk/file)
+# [『Selyu』](http://www.mediafire.com/file/t5gzhlsgufy0eaq/-_Nochito_Futaba_v2_%25E3%2580%258ESelyu%25E3%2580%258F_-.osk/file)
 ![](https://i.imgur.com/J832WdL.png)
 
 
