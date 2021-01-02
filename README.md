@@ -26,7 +26,8 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 # [『Selyu』](http://www.mediafire.com/file/t5gzhlsgufy0eaq/-_Nochito_Futaba_v2_%25E3%2580%258ESelyu%25E3%2580%258F_-.osk/file)
 ![](https://i.imgur.com/J832WdL.png)
 
-# ========= My Angel Tefy - v1.0 =========
+# ======== My Angel Tefy - v1.0 ========
+![](https://i.imgur.com/QjcICYQ.jpg)
 # [『CH』](http://www.mediafire.com/file/censtevdrec2p3x/-_Nochii_%2523_My_Angel_Tefy_-_v1.0_%25E3%2580%258ECH%25E3%2580%258F_%2523%2523_-.osk/file)
 ![](https://i.imgur.com/pWRETr3.jpg)
 
