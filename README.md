@@ -2,17 +2,19 @@
 Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 
 # Skins made by me
-
-# [Nochito Was Here [1.2]『Ω』by me](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+![](https://i.imgur.com/MDAbbQO.png)
+# [Nochito Was Here [1.2]』by me]
+https://i.imgur.com/MDAbbQO.png
+# [『Ω』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/qePZqvk.jpg)
 
-# [Nochito Was Here [1.2]『NM』by me](http://www.mediafire.com/file/ojzpeh2gnwqwu8l/-_Nochito_Was_Here_%25E3%2580%258ENM%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『NM』](http://www.mediafire.com/file/ojzpeh2gnwqwu8l/-_Nochito_Was_Here_%25E3%2580%258ENM%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/h1lpjwf.jpg)
 
-# [Nochito Was Here [1.2]『DT』by me](http://www.mediafire.com/file/6cbjnqpwhjlt334/-_Nochito_Was_Here__%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『DT』](http://www.mediafire.com/file/6cbjnqpwhjlt334/-_Nochito_Was_Here__%25E3%2580%258EDT%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/GNIduNe.jpg)
 
-# [Nochito Was Here [1.2]『VV』by me](http://www.mediafire.com/file/mj9forj93q3q32a/-_Nochito_Was_Here_%25E3%2580%258EVV%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『VV』](http://www.mediafire.com/file/mj9forj93q3q32a/-_Nochito_Was_Here_%25E3%2580%258EVV%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
 ![](https://i.imgur.com/MrMiMgY.jpg)
 
 
