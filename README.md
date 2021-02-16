@@ -4,13 +4,13 @@ Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 # ========== Nochito Chocomint v1.1 ==========
 ![](https://i.imgur.com/J9Vet7b.png )
 # [『NT』](https://drive.google.com/file/d/1xDwemGSn89Gp7KdLmxcMCdH08Qbuge--/view)
-![](https://i.imgur.com/sFagolj.png)
+![](https://i.imgur.com/5albIYA.png)
 
 # [『DT』](https://drive.google.com/file/d/1zIFQM5yoR_3fFNbxeuo5jX-b46XgprJz/view)
-![](https://i.imgur.com/9UrRUlG.png )
+![](https://i.imgur.com/lNk4DsW.png)
 
 # [『AS』](https://drive.google.com/file/d/1pORP8h6oOjgiYbNUtckOyC9HMy1BFGuN/view)
-![](https://i.imgur.com/kuRiu0p.png)
+![](https://i.imgur.com/rudzxVs.png)
 
 # ========== Nochito Was Here v1.2 ==========
 ![](https://i.imgur.com/MDAbbQO.png)
