@@ -1,8 +1,8 @@
 # Nochito's skins
-Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
+Follow me on [Facebook Gaming](https://www.facebook.com/Nochitovtuber) and [Twitch](https://www.twitch.tv/nochitovt)
 
 # ========== Nochito Chocomint v1.2 ==========
-![](https://i.imgur.com/J9Vet7b.png )
+![](https://i.imgur.com/sewaHQ0.png)
 # [『NT』](https://drive.google.com/file/d/1-UTcKIPNVHeT2wnoqMU_pfgToBKD7_xL/view)
 ![](https://i.imgur.com/wiI0Xbt.png)
 
