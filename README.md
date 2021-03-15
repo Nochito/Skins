@@ -1,16 +1,14 @@
 # Nochito's skins
 Follow me on [Facebook Gaming](https://www.facebook.com/SoyNochito)
 
-# ========== Nochito Chocomint v1.1 ==========
+# ========== Nochito Chocomint v1.2 ==========
 ![](https://i.imgur.com/J9Vet7b.png )
-# [『NT』](https://drive.google.com/file/d/1xDwemGSn89Gp7KdLmxcMCdH08Qbuge--/view)
-![](https://i.imgur.com/5albIYA.png)
+# [『NT』](https://drive.google.com/file/d/1-UTcKIPNVHeT2wnoqMU_pfgToBKD7_xL/view)
+![](https://i.imgur.com/wiI0Xbt.png)
 
-# [『DT』](https://drive.google.com/file/d/1zIFQM5yoR_3fFNbxeuo5jX-b46XgprJz/view)
-![](https://i.imgur.com/lNk4DsW.png)
+# [『DT』](https://drive.google.com/file/d/1oxuEvZpuX43RYPrJySchHa7y16cOYBwf/view)
+![](https://i.imgur.com/lRhGg1D.png)
 
-# [『AS』](https://drive.google.com/file/d/1pORP8h6oOjgiYbNUtckOyC9HMy1BFGuN/view)
-![](https://i.imgur.com/rudzxVs.png)
 
 # ========== Nochito Was Here v1.2 ==========
 ![](https://i.imgur.com/MDAbbQO.png)
