@@ -2,12 +2,12 @@
 Follow me on [Facebook Gaming](https://www.facebook.com/Nochitovtuber) and [Twitch](https://www.twitch.tv/nochitovt)
 
 # ========== Nochito Chocomint v1.2 ==========
-![](https://i.imgur.com/sewaHQ0.png)
-# [『NT』](https://drive.google.com/file/d/1-UTcKIPNVHeT2wnoqMU_pfgToBKD7_xL/view)
+![](https://i.imgur.com/9xSehGL.png)
+# [『NT』](https://drive.google.com/file/d/1WrvcgzLqVFBEEv75Ws4whwle2nm7ac83/view)
 ![](https://i.imgur.com/wiI0Xbt.png)
 
-# [『DT』](https://drive.google.com/file/d/1oxuEvZpuX43RYPrJySchHa7y16cOYBwf/view)
-![](https://i.imgur.com/lRhGg1D.png)
+# [『DT』](https://drive.google.com/file/d/1LmQQtEw60_JIak4x-gWTZT4PmYtP_M_1/view)
+![](https://i.imgur.com/fBT2hX7.png)
 
 
 # ========== Nochito Was Here v1.2 ==========
