@@ -26,19 +26,19 @@ Follow me on [Facebook Gaming](https://www.facebook.com/Nochitovtuber) and [Twit
 
 
 # ============ NinoDurian v1.2 ============
-# [『NT』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『NT』](https://drive.google.com/file/d/1N9JjbXpSSbk1Qn0MTckEVIB1tK8RI9pS/view)
 ![](https://i.imgur.com/e4G8Sb0.png)
 
-# [『NO』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『NO』](https://drive.google.com/file/d/1IyrhLvY60-3KTVkdlk6wrqozVvmoodTC/view)
 ![](https://i.imgur.com/DAcHPMI.png)
 
-# [『DT』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『DT』](https://drive.google.com/file/d/19gYkte1_dpUyt_HOPeV4jPzf51HkJsfU/view)
 ![](https://i.imgur.com/jaqrxIQ.png)
 
-# [『BB』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『BB』](https://drive.google.com/file/d/1yknzjJRfx5c_oppBAxiYAkOVhHw3oV0L/view)
 ![](https://i.imgur.com/jD9pCqR.png)
 
-# [『VV』](http://www.mediafire.com/file/ez2g6bpybmemm4r/-_Nochito_Was_Here_%25E3%2580%258E%25CE%25A9%25E3%2580%258F_%2523_%255B1.2%255D.osk/file)
+# [『VV』](https://drive.google.com/file/d/19BFPT2_kqCtN9hFVMiI6BTZjZFFu5q4-/view)
 ![](https://i.imgur.com/bb1WTcM.png)
 
 # =========== Nochito Futaba v2 ===========
