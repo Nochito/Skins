@@ -26,6 +26,7 @@ Follow me on [Facebook Gaming](https://www.facebook.com/Nochitovtuber) and [Twit
 
 
 # ============ NinoDurian v1.2 ============
+![](https://i.imgur.com/62vTI2m.png)
 # [『NT』](https://drive.google.com/file/d/1N9JjbXpSSbk1Qn0MTckEVIB1tK8RI9pS/view)
 ![](https://i.imgur.com/e4G8Sb0.png)
 
