@@ -2,7 +2,7 @@
 Follow me on [Facebook Gaming](https://www.facebook.com/Nochitovtuber) and [Twitch](https://www.twitch.tv/nochitovt)
 
 # ========== Nochito Chocomint v1.2 ==========
-![](https://i.imgur.com/9xSehGL.png)
+![](https://i.imgur.com/MMLM2mV.png)
 # [『NT』](https://drive.google.com/file/d/1WrvcgzLqVFBEEv75Ws4whwle2nm7ac83/view)
 ![](https://i.imgur.com/wiI0Xbt.png)
 
