@@ -64,13 +64,13 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 
 # =============== Blemi - v1 ==============
 ![](https://i.imgur.com/3oHpPOr.png)
-# [『NT』](http://www.mediafire.com/file/5inr7fr5wxzcnv6/-_Nochii_%2523_Blemi__%25E3%2580%258ENT%25E3%2580%258F_v1.0_-.osk/file)
+# [『NT』](https://drive.google.com/file/d/1zmpFpbO6b-HJrIZWyy2KgA7_1gCgLzu2/view?usp=sharing)
 ![](https://i.imgur.com/sZQPwk9.png)
 
-# [『BB』](http://www.mediafire.com/file/qk2crpvd9wpcjn2/-_Nochii_%2523_Blemi__%25E3%2580%258EBB%25E3%2580%258F_v1.0_-.osk/file)
+# [『BB』](https://drive.google.com/file/d/1nvjmMGAbUxl1yeiNeG08SqlqDsssHAIv/view?usp=sharing)
 ![](https://i.imgur.com/fQ3xsBW.png)
 
-# [『DT』](http://www.mediafire.com/file/wip8tbv9xzidx5x/-_Nochii_%2523_Blemi__%25E3%2580%258EDT%25E3%2580%258F_v1.0_-.osk/file)
+# [『DT』](https://drive.google.com/file/d/1i1KKZFNOB6da9beVs-27jl0T7iD_CFAI/view?usp=sharing)
 !(https://i.imgur.com/tddFPrm.png)
 
 # ========== A hat in Copycat - v1 ==========
