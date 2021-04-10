@@ -64,13 +64,13 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 
 # =============== Blemi - v1 ==============
 ![](https://i.imgur.com/3oHpPOr.png)
-# [『NT』](https://drive.google.com/file/d/1zmpFpbO6b-HJrIZWyy2KgA7_1gCgLzu2/view?usp=sharing)
+# [『NT』](https://drive.google.com/file/d/185OidlL5geNbhtxO_cflEkJJ29I_hi9s/view)
 ![](https://i.imgur.com/sZQPwk9.png)
 
-# [『BB』](https://drive.google.com/file/d/1nvjmMGAbUxl1yeiNeG08SqlqDsssHAIv/view?usp=sharing)
+# [『BB』](https://drive.google.com/file/d/1L62G4EJEMhJVZXlXQiUW6YC4VJv5gjU1/view)
 ![](https://i.imgur.com/fQ3xsBW.png)
 
-# [『DT』](https://drive.google.com/file/d/1i1KKZFNOB6da9beVs-27jl0T7iD_CFAI/view?usp=sharing)
+# [『DT』](https://drive.google.com/file/d/1S1472gCEOfqFBDpDJ0h4iN3hUqFXct5N/view)
 !(https://i.imgur.com/tddFPrm.png)
 
 # ========== A hat in Copycat - v1 ==========
