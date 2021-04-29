@@ -26,22 +26,22 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 ![](https://i.imgur.com/MrMiMgY.jpg)
 
 
-# ============ NinoDurian v1.2 ============
-![](https://i.imgur.com/62vTI2m.png)
-# [『NT』](https://drive.google.com/file/d/1N9JjbXpSSbk1Qn0MTckEVIB1tK8RI9pS/view)
-![](https://i.imgur.com/e4G8Sb0.png)
+# ============ NinoDurian v1 ============
+![](https://i.imgur.com/oX0mO1B.png)
+# [『NT』](https://drive.google.com/file/d/10cqxjX0HcxvzhE1rkp2l5DUqwc87a1Xc/view?usp=sharing)
+![](https://i.imgur.com/RuifBs3.png)
 
-# [『NO』](https://drive.google.com/file/d/1IyrhLvY60-3KTVkdlk6wrqozVvmoodTC/view)
-![](https://i.imgur.com/DAcHPMI.png)
+# [『NO』](https://drive.google.com/file/d/1hdhrM36hgQqja9NsJd0V6dI7jETTEALU/view?usp=sharing)
+![](https://i.imgur.com/bfeQL5V.png)
 
-# [『DT』](https://drive.google.com/file/d/19gYkte1_dpUyt_HOPeV4jPzf51HkJsfU/view)
-![](https://i.imgur.com/jaqrxIQ.png)
+# [『DT』](https://drive.google.com/file/d/1mNd61a3LEfSM6WwWQ71VZU7th0URPxMN/view?usp=sharing)
+![](https://i.imgur.com/NGTCPki.png)
 
-# [『BB』](https://drive.google.com/file/d/1yknzjJRfx5c_oppBAxiYAkOVhHw3oV0L/view)
-![](https://i.imgur.com/jD9pCqR.png)
+# [『BB』](https://drive.google.com/file/d/1UqzbvNzi9Gjnx73u48vlgjvivp7WVsJ4/view?usp=sharing)
+![](https://i.imgur.com/Zb46owg.png)
 
-# [『VV』](https://drive.google.com/file/d/19BFPT2_kqCtN9hFVMiI6BTZjZFFu5q4-/view)
-![](https://i.imgur.com/bb1WTcM.png)
+# [『VV』](https://drive.google.com/file/d/1GVEMUjxD-cqhWes6WpbGkMEkeqpVBTi6/view?usp=sharing)
+![](https://i.imgur.com/ATcnJzn.png)
 
 # =========== Nochito Futaba v2 ===========
 ![](https://i.imgur.com/G6j916g.png)
