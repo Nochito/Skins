@@ -4,10 +4,10 @@ Follow me on [Facebook Gaming](https://www.facebook.com/Nochitovtuber) and [Twit
 # ========== Nochito Chocomint v1.2 ==========
 ![](https://i.imgur.com/MMLM2mV.png)
 Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-skinning-contest-announcement) :3
-# [『NT』](https://drive.google.com/file/d/1WrvcgzLqVFBEEv75Ws4whwle2nm7ac83/view)
+# [『NT』](https://drive.google.com/file/d/1wtQTBp_ORGVutBnCkWyJIMdU4dSqyoiA/view)
 ![](https://i.imgur.com/wiI0Xbt.png)
 
-# [『DT』](https://drive.google.com/file/d/1LmQQtEw60_JIak4x-gWTZT4PmYtP_M_1/view)
+# [『DT』](https://drive.google.com/file/d/12A4I8WVoXcd37SwaDhN-bJRx7feuSSux/view)
 ![](https://i.imgur.com/fBT2hX7.png)
 
 
