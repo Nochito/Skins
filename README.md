@@ -9,12 +9,13 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 
 # [『DT』](https://drive.google.com/file/d/1YxUw_8-e6FmuVekXrk_2UbsQr9-7iNVv/view)
 ![](https://i.imgur.com/O6qmsS9.png)
+# [『All Version』](https://drive.google.com/drive/folders/1KQdi8YDjp2NeQ8yEAVVshGrFb4FFuq9K?usp=sharing)
 
 # =========== Nochito Futaba v2 ===========
 ![](https://i.imgur.com/rGiV0s6.png)
 # [『NT』](https://drive.google.com/file/d/1X9zx1JRFWmybnbKJNLZublpYwdKTM-in/view)
 ![](https://i.imgur.com/vXnAqvk.png)
-
+# [『All Version』](https://drive.google.com/drive/folders/1UQ6VDzdzZwLc8qvKv0jveGTtbLpUbWOd?usp=sharing)
 
 # ========== Nochito Was Here v1.2 ==========
 ![](https://i.imgur.com/MDAbbQO.png)
