@@ -10,6 +10,16 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 # [『DT』](https://drive.google.com/file/d/1YxUw_8-e6FmuVekXrk_2UbsQr9-7iNVv/view)
 ![](https://i.imgur.com/O6qmsS9.png)
 
+# =========== Nochito Futaba v2 ===========
+![](https://i.imgur.com/G6j916g.png)
+# [『NT』](http://www.mediafire.com/file/f4qxjuiufxuveec/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
+![](https://i.imgur.com/HsVo09A.png)
+
+# [『BB』](http://www.mediafire.com/file/cksz9m2g65dly3m/-_Nochito_Futaba_v2_%25E3%2580%258EBB%25E3%2580%258F_-.osk/file)
+![](https://i.imgur.com/7EUsxZA.png)
+
+# [『Selyu』](http://www.mediafire.com/file/t5gzhlsgufy0eaq/-_Nochito_Futaba_v2_%25E3%2580%258ESelyu%25E3%2580%258F_-.osk/file)
+![](https://i.imgur.com/J832WdL.png)
 
 # ========== Nochito Was Here v1.2 ==========
 ![](https://i.imgur.com/MDAbbQO.png)
@@ -43,16 +53,6 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 # [『VV』](https://drive.google.com/file/d/1GVEMUjxD-cqhWes6WpbGkMEkeqpVBTi6/view?usp=sharing)
 ![](https://i.imgur.com/ATcnJzn.png)
 
-# =========== Nochito Futaba v2 ===========
-![](https://i.imgur.com/G6j916g.png)
-# [『NT』](http://www.mediafire.com/file/f4qxjuiufxuveec/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
-![](https://i.imgur.com/HsVo09A.png)
-
-# [『BB』](http://www.mediafire.com/file/cksz9m2g65dly3m/-_Nochito_Futaba_v2_%25E3%2580%258EBB%25E3%2580%258F_-.osk/file)
-![](https://i.imgur.com/7EUsxZA.png)
-
-# [『Selyu』](http://www.mediafire.com/file/t5gzhlsgufy0eaq/-_Nochito_Futaba_v2_%25E3%2580%258ESelyu%25E3%2580%258F_-.osk/file)
-![](https://i.imgur.com/J832WdL.png)
 
 # =========== My Angel Tefy - v1 ===========
 ![](https://i.imgur.com/QjcICYQ.jpg)
