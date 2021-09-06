@@ -11,7 +11,7 @@ Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-ski
 ![](https://i.imgur.com/O6qmsS9.png)
 
 # =========== Nochito Futaba v2 ===========
-![](https://i.imgur.com/G6j916g.png)
+![](https://i.imgur.com/rGiV0s6.png)
 # [『NT』](http://www.mediafire.com/file/f4qxjuiufxuveec/-_Nochito_Futaba_v2_%25E3%2580%258ENT%25E3%2580%258F_-.osk/file)
 ![](https://i.imgur.com/HsVo09A.png)
 
