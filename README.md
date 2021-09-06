@@ -2,7 +2,7 @@
 Follow me on [Twitter](https://www.twitter.com/Nochitovt) and [Twitch](https://www.twitch.tv/nochitovt)
 
 # ========== Nochito Chocomint v1.2 ==========
-![](https://i.imgur.com/MMLM2mV.png)
+![](https://i.imgur.com/vBwQzzt.png)
 Skin enviada al # [Skinning Contest](https://osu.ppy.sh/home/news/2021-03-08-skinning-contest-announcement) :3
 # [『NT』](https://drive.google.com/file/d/1ar-Z5Vu3DhqSr5QjcvAUWKEZ624XrEjN/view)
 ![](https://i.imgur.com/27E7cNC.png)
