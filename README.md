@@ -1,6 +1,6 @@
 # Nochito's skins
 Follow me on [Twitter](https://www.twitter.com/Nochitovt) and [Twitch](https://www.twitch.tv/nochitovt)
-# ========== Nochito Chocomint v1.2 ==========
+# ========== MOONLIGHT ==========
 # [Reddit Post](https://osu.ppy.sh/home/news/2021-03-08-skinning-contest-announcement)
 
 # ========== Nochito Chocomint v1.2 ==========
