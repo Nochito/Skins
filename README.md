@@ -4,7 +4,7 @@ Follow me on [Twitter](https://www.twitter.com/Nochitovt) and [Twitch](https://w
 ![](https://i.imgur.com/ZVOr7Xh.png)
 Click here --> [Reddit Post](https://osu.ppy.sh/home/news/2021-03-08-skinning-contest-announcement)
 # [『NT』](https://drive.google.com/file/d/1ZGKZD7fw5l6KOjZ7TPAilsJW2tUhrcdb/view)
-![]https://i.imgur.com/AE7HIky.png)
+![](https://i.imgur.com/AE7HIky.png)
 
 # [『NC』](https://drive.google.com/file/d/1sfcUBxFnDzaqu7BklpnL7Ubrjeh3rm16/view)
 ![](https://i.imgur.com/2AFdMR5.png)
