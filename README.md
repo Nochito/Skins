@@ -1,6 +1,6 @@
 # Nochito's skins
 Follow me on [Twitter](https://www.twitter.com/Nochitovt) and [Twitch](https://www.twitch.tv/nochitovt)
-# ========== Moonlight ==========
+# ============ Moonlight ============
 ![](https://i.imgur.com/ZVOr7Xh.png)
 Click here --> [Reddit Post](https://osu.ppy.sh/home/news/2021-03-08-skinning-contest-announcement)
 # [『NT』](https://drive.google.com/file/d/1ZGKZD7fw5l6KOjZ7TPAilsJW2tUhrcdb/view)
@@ -8,6 +8,9 @@ Click here --> [Reddit Post](https://osu.ppy.sh/home/news/2021-03-08-skinning-co
 
 # [『NC』](https://drive.google.com/file/d/1sfcUBxFnDzaqu7BklpnL7Ubrjeh3rm16/view)
 ![](https://i.imgur.com/2AFdMR5.png)
+
+# [『DT』](https://drive.google.com/file/d/1ReOAEtk0wkV4WQ2ZPp-5ijPJsyY-H8iU/view)
+![](https://i.imgur.com/JeueHZT.png)
 
 # [『Classic』](https://drive.google.com/file/d/1ZDYmexVrAlbqJRQb1ZbhHM1EdUqIoPbM/view)
 ![](https://i.imgur.com/FjUXqXy.png)
